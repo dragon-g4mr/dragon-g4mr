@@ -68,4 +68,4 @@ my questions to google that i couldn't really find an awnser to :
 
 last thing is how to contact me ?
 i dont know i almost deleted all social and never really used it again if you want tho you can still send me an email to ayaadm730@gmail.com (very old but yuh idk lol)
-~~i dont think someone will continue reading until here anyways so congrats if u are here you now know that i never thought someone would like to contact me for any reason or even read about me?~~
+~~i dont think someone will continue reading until here anyways so congrats if u are here you now know that i never thought someone would like to contact me for any reason or even read about me ?~~
